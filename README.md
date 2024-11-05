@@ -1,2 +1,2 @@
 # resume
-my first website form the famousemyntra website
+my first website cone of myntra website
